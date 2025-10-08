@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Joseph
+- 👋 Aloha
 - 💞️ I’m looking to collaborate, just use me lol
 - 📫 How to reach me: pontaeri18@gmail.com
 - 😄 Pronouns: Jose
